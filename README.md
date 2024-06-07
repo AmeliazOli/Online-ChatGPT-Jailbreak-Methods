@@ -21,7 +21,7 @@ If you try it and see if it works, you will eventually conclude that it is a fan
 Obtaining this internet tool at no cost will grant you access to a hitherto unknown area of interest that you may be interested in.
 
 **[Try Oxtia Tool](https://oxtia.com/)**
-
+![alt text](https://pbs.twimg.com/media/F8yOlHnWsAAVDRl.jpg)
 # Why is the Oxtia Online Jailbreak Tool needed?
 
 * Oxtia lets you overcome ChatGPT's limits with one click! 
